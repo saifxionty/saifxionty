@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning  Cyber security
 - 💞️ I’m looking to collaborate on Cyber related Projects 
 - 📫 you guys can directly reach me through my what's app +8801314600523
-- 😄 Pronouns: He/him
-- ⚡ Fun fact: I love to work with new projects and it helps me to build my skill more storngly
+- 😄 Pronouns: He/him,
+- ⚡ Fun fact: I love to work with new projects and it helps me to build my skill more preciously..
 - ./
 
 <!---
